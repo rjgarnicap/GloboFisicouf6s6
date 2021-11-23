@@ -1,1 +1,0 @@
-# GloboFisicouf6s6
